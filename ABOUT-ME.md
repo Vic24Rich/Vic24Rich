@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Vic24Rich or Victor Richard
+- 👀 I’m interested in Progamming, Gaming and Learn about the things!
+- 🌱 I’m currently learning HTML5, CSS, JS, Python
+- 💞️ I’m looking to collaborate on Projects and Researches
