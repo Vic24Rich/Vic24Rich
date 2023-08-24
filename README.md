@@ -7,5 +7,5 @@
 ### - 👀 I’m interested in Progamming, Gaming and Learn about the things!
 ### - 💞️ I’m looking to collaborate on Projects and Researches!
 
-##  "I have dream one day to be the better profissonal that i'm today!"
+##  "Progamming the Life!"
 ###  By Me
